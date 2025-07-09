@@ -68,6 +68,3 @@ As fraud tactics continue to evolve, ongoing research and technological improvem
 
 ---
 
-
-#🙋 Author
-Panendra Rao. J
